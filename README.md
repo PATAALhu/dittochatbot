@@ -1,10 +1,12 @@
-## ʙʀᴀɴᴅᴇᴅ ᴋɪɴɢ 🚬🦋
+## ⏤͟͞ ᷟ𓆩 𝑫𝑰𝑻𝑻𝑶𓆪 ᷟ‌𖤍🦋⋆‌⃝─⃛͢ꭘ‌𝑫:
+
 
 <h2 align="center">   
-    ──「◄⏤͟͞ꭙͯ͢³⋆꯭ꙶ⋆꯭ͣ⋆᭄ͫ͢🍁⃝🇧𝐑𝐀𝐍𝐃𝐄𝐃 ᥫᩣ🇰𝗜𝗡𝗚𐏓꯭ ᷞ ͦ͢ ͮ ͤ𓆪🕊⃝🦋 」──  
+    ⏤͟͞ ᷟ𓆩 𝑫𝑰𝑻𝑻𝑶𓆪 ᷟ‌𖤍🦋⋆‌⃝─⃛͢ꭘ‌𝑫:
+⍣⃪͜ ✘⏤͟͟͞͞➤⃝🇭 🇦 𝐑 𝐒 𝐇 ༎ࠫꗝؖؖؖؖ𝆺꯭𝅥༎ᜊ𝆺꯭𝅥✶
    </h2>  
  <p align="center">   
-<img src="https://graph.org/file/51e1bf391ebb7421aca57.jpg"
+<img src="https://te.legra.ph/file/9b9302a0faecffe86e125.jpg"
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
