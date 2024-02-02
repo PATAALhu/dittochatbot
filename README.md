@@ -1,10 +1,6 @@
 ## ⏤͟͞ ᷟ𓆩 𝑫𝑰𝑻𝑻𝑶𓆪 ᷟ‌𖤍🦋⋆‌⃝─⃛͢ꭘ‌𝑫:
 
 
-<h2 align="center">   
-    ⏤͟͞ ᷟ𓆩 𝑫𝑰𝑻𝑻𝑶𓆪 ᷟ‌𖤍🦋⋆‌⃝─⃛͢ꭘ‌𝑫:
-⍣⃪͜ ✘⏤͟͟͞͞➤⃝🇭 🇦 𝐑 𝐒 𝐇 ༎ࠫꗝؖؖؖؖ𝆺꯭𝅥༎ᜊ𝆺꯭𝅥✶
-   </h2>  
  <p align="center">   
 <img src="https://te.legra.ph/file/9b9302a0faecffe86e125.jpg"
 
